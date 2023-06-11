@@ -14,6 +14,6 @@
 
 - ## [Github](https://github.com/)
 
-- ## [📺](https://hdmoli.com/)
+- ## [📺](https://www.hdmoli.com/)
 
-- ## [📺](https://freeok.vip/)
+- ## [📺](https://www.freeok.vip/)
