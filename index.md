@@ -10,7 +10,7 @@
 
 - ## [IP地址](https://ip125.com/)
 
-- ## [💍](https://www.mojie.me/#/login)
+- ## [💍](https://www.mojie.mx/#/login)
 
 - ## [Github](https://github.com/)
 
