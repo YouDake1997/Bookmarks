@@ -10,7 +10,7 @@
 
 - ## [IP地址](https://ip125.com/)
 
-- ## [💍](mojie.mom)
+- ## [💍](https://mojie.mom/)
 
 - ## [Github](https://github.com/)
 
